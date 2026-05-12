@@ -1,4 +1,4 @@
-# 
+# top nft trading bot | volume-analysis + bundle-transactions is the best nft trading bot, featuring volume-analysis and bundle-transactions. Fast, smart, and optimized for NFT
 
 
 
